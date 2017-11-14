@@ -1,3 +1,1 @@
-# NO
-
-But it will be [soon](https://www.mozilla.org/en-US/firefox/quantum/).
+# [YOU BET YOUR ASS IT IS](https://www.mozilla.org/en-US/firefox/quantum)
